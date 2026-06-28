@@ -1,4 +1,4 @@
-# 
+# Profesional bybit trading bot preajustes for Mac OS | VIP bybit trading bot preajustes for PC Windows. Featuring API de intercambio centralizado and análisis de momento — optimized for maximum performance.
 
 
 
